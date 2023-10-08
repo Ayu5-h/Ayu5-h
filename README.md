@@ -9,7 +9,7 @@ You can reach me at<br/>
 Telegram:  @Ayu5_h<br/>
 Mail:  ayushgawande1011@gmail.com<br/>
 
-[![@ayu5h's Holopin board](https://holopin.me/ayu5h)](https://holopin.io/@ayu5h)
+[![An image of @ayu5h's Holopin badges, which is a link to view his full Holopin profile](https://holopin.me/ayu5h)](https://holopin.io/@ayu5h)
 
 
 <!---
