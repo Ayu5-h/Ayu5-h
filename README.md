@@ -7,7 +7,7 @@ If you have an idea and you want to scale it up or just another mind to make it 
 <br/><br/>
 You can reach me at<br/>
 Telegram:  @Ayu5_h<br/>
-Mail:  ayushgawande1011@gmail.com<br/>
+Mail:  contact.ayushg@gmail.com<br/>
 
 [![An image of @ayu5h's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/ayu5h)](https://holopin.io/@ayu5h)
 
